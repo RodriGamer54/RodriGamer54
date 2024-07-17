@@ -4,7 +4,7 @@
 - 💞️ Mi banda favorita es Zoé, también me gusta The Beatles 
 - 📫 Soy Youtuber
 - 😄 Pronouns: He 
-- ⚡ Fun fact: Me gustan las Hamburguesas y los CHialquiles 
+- ⚡ Fun fact: Me gustan las Hamburguesas y los Chilaquiles 
 
 
 
